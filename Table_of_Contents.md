@@ -1,4 +1,4 @@
-# art-design-portfolio
+# Art-and-Design-Portfolio
 Cherie Ma's Art & Design Portfolio
 
 Artwork
