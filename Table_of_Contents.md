@@ -1,4 +1,7 @@
 # Art-and-Design-Portfolio
+VIEW IN RAW MODE FOR FORMATTING
+
+
   ====================================
 || Cherie Ma's Art & Design Portfolio ||
   ====================================
