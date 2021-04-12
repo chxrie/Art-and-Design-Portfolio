@@ -60,6 +60,12 @@ ARTWORK-------------------------------------------------------------------
   Waves                                                       Jan 2018
     - acrylic painting
 
+  WillKang_CABCampaignPoster(1)                               April 2021
+    - digital design
+
+  WillKang_CABCampaignPoster(1)                               April 2021
+    - digital design
+
 
 
 FASHION DESIGNS-----------------------------------------------------------
