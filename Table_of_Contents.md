@@ -1,6 +1,6 @@
 # Art-and-Design-Portfolio
 
-# PLEASE VIEW IN RAW MODE FOR FORMATTING
+# Please view in raw mode for formatting, thank you!
 
 
   ====================================
